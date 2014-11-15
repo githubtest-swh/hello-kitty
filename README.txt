@@ -1,1 +1,1 @@
-Let's be conflictual
+cynical
